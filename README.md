@@ -3,7 +3,7 @@
 - 📫 How to reach me: <br>
       Discord: Arocien#9662 <br>
       Instagram: philip.ooi_ <br>
-      Email: philipooiww@gmail.com <br
+      Email: philipooiww@gmail.com 
 
 <!---
 Arocien/Arocien is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
