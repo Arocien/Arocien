@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Phil, nice to meet you!
-- 🌱 I’m currently a second year university sudent
+- 🌱 I’m currently a second year IT student
 - 📫 How to reach me: <br>
       Discord: Arocien#9662 <br>
       Instagram: philip.ooi_ <br>
